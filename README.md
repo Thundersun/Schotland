@@ -48,6 +48,7 @@ zeg maar als je nog iets tof bent tegengekomen!
 **Geriefjes:**
 
 Rudolf: tent voor 2 personen
+
 Vanhille: Vuurtje, vislijntjes
 
 
