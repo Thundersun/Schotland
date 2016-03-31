@@ -4,7 +4,6 @@
 
 http://www.walkhighlands.co.uk/lochness/affric-kintail-way.shtml	
 4 dagen 
-
 71km		
 veel meren, veel natuur, vrijwel overal padjes, soms gaan we keer van 't padje
 
