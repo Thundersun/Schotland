@@ -1,6 +1,7 @@
 # Schotland
 
 Wandelingen:
+
 http://www.walkhighlands.co.uk/lochness/affric-kintail-way.shtml	4 dagen		71km		veel meren, veel natuur, vrijwel overal padjes, soms gaan we keer van 't padje
 
 http://www.walkhighlands.co.uk/east-highland-way.shtml			4-7 dagen	134km		zieke wandeling, lang, genoeg padjes
