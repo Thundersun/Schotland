@@ -51,6 +51,8 @@ Rudolf: tent voor 2 personen
 
 Vanhille: Vuurtje, vislijntjes
 
+Jonathan: tent voor 2 personen
+
 
 
 ----------
