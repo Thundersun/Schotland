@@ -7,12 +7,12 @@ http://www.walkhighlands.co.uk/lochness/affric-kintail-way.shtml
 71km		
 veel meren, veel natuur, vrijwel overal padjes, soms gaan we keer van 't padje
 
-http://www.walkhighlands.co.uk/east-highland-way.shtml			
+http://www.walkhighlands.co.uk/east-highland-way.shtml (voorkeur Jonathan)			
 4-7 dagen	
 134km		
 zieke wandeling, lang, genoeg padjes
 
-http://www.walkhighlands.co.uk/great-glen-way.shtml			
+http://www.walkhighlands.co.uk/great-glen-way.shtml	(voorkeur Jonathan)		
 5-6 dagen	
 117km		
 dwars door schotland, ge moet wel van meren houden, eentje vissen 's avonds?
